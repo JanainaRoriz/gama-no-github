@@ -1,0 +1,1 @@
+Até o presente momento estou achando o curso muito bom, com aulas bastante didáticas. 
